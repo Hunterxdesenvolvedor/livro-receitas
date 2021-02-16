@@ -2,7 +2,9 @@
 
 Olá ! Bem vindo ao meu livro de receitas:cake:
 
-- Stogonoff de Frango 
+- Strogonoff de Frango 
+
+- Pave
 
   
 
